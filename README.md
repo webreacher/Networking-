@@ -1,1 +1,2 @@
-# Networking-
+# Networking-It is an important issue that i was struggling to resolve in this world. You can not use network freely without consequences there is something we always have to pay to use something that was not ours, there is always something like emotion, money, politics e.t.c. without consequences there is nothing free like 
+When you purchase something we have to understand the concepts and their uses in our daily life .
